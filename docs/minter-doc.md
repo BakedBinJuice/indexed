@@ -28,4 +28,3 @@ https://www.reddit.com/r/ethereum/comments/i28jne/minter_network_submission_to_t
 
 Twitter: https://twitter.com/MinterTeam
 FaceBook: https://www.facebook.com/MinterNetwork
-
